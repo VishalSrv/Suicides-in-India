@@ -1,1 +1,0 @@
-# Suicides-in-India
